@@ -7,7 +7,7 @@ I'm Enji! 25+! spa/eng/learning jpns. I love maids, aliens, robots, and you! ðŸ©
 
 > I like to talk, rp and be silly! don't be afraid to whisper if you want to. If I don't react, I'm probably off screen, or just haven't noticed your whisper. Sometimes I can't type for whatever reason and might just gesture at you... ðŸ‘‹)) 
 
-> I'll reply to you in character by default most likely, depending on the skin I'm using at the time, but you can lmk you don't roll w that and we can also just talk normally ^_^ I try my best to be in character but might sometimes just be silly for the sake of it. Ponytown roleplay doesn't allow for more anyway lmao hahaha. 
+> I'll reply to you in character by default most likely, depending on the skin I'm using at the time, but you can lmk you don't roll w that and we can also just talk normally ^_^ I try my best to be in character but might sometimes just be silly for the sake of it. Ponytown roleplay doesn't allow for more anyway lmao hahaha. I will block you if I see you using the T slur, unless using it directed at yourself or smth. You're not edgy and funny, you're a moron.
 
 > On the topic of roleplay -- I'm just a dude. Literally just a guy. No kin stuff or anything else. Literally just roleplaying normally. Playing with my touys. Characters I make in ponytown don't represent me or my ideas in case it wasn't obvious lol. I like complex characters, for complex reasons. 
 
