@@ -30,6 +30,8 @@ I'm Enji! 25+! spa/eng/learning jpns. I love maids, aliens, robots, and you! �
 
 > For homestuck, my OTP is **Karezi**, like i will GO TO WAR for them-- but I also like Gamtav! Other ships are also totally fine and fun for me (erikar, solkat, johnkat, karkri, idk u name it).  Not huge on davekat but I love dave, so feel free to interact as well ! Also I only read the comic, no idea about anything else sorry :(... I'm lowkey re-reading the comic atm.
 
+> For hetalia my fave ship used to be spamano ! not interested in chibiromano tho lol 😭 just regular romano is fine 🫶
+
 
 ![hippo](https://64.media.tumblr.com/baf7923abd3d2b2380f3ad2f5c1eb94e/tumblr_inline_qyvt4fZrn91xbmkzq_500.gif)
 
