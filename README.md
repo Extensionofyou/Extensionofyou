@@ -17,7 +17,7 @@ I'm Enji! 25+! spa/eng/learning jpns. I love maids, aliens, robots, and you! �
 
 > I also have quite a few Ocs-- and I love talking about them and roleplaying them with others ❤️‍🩹
 
-> I block and hide freely. Earning a block is a tough task but if you start trying to be edgy for the sake of what I guess you consider to be your best attempt at trolling, I'll block you right away, I don't get paid by ur parents to babysit you🫰 
+> I block and hide freely. Earning a block is a tough task but if you start trying to be edgy for the sake of what I guess you consider to be your best attempt at trolling, I'll block you right away, I don't get paid by ur parents to babysit you🫰 If you're wondering why I blocked you even though you're not a troll: you probably said something so stupid I got a headache and made a wish to never have to read your opinions again... poof... be free brother... far away from me
 
 > I'm also very much not interested in ship discourse. Argue with the wall. Idgaf what anyone ships or likes. I won't fight you either. 
 
